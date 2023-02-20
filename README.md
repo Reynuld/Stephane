@@ -4,3 +4,4 @@ Xera1337
 C'est pas des phrases ça xD
 Après une phrase c'est un ou plusieurs mots 
 merci pour l'info jordan
+tous ensemble !
